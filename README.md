@@ -1,1 +1,0 @@
-# weakmale.github.io
